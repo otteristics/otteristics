@@ -1,3 +1,3 @@
-‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ<img width="100" height="125" alt="Image" src="https://github.com/user-attachments/assets/e38e84a8-4232-45a4-adf0-76b4089bb5fe" />
+ <img width="2000" height="366" alt="Başlıksız32_20260418182757" src="https://github.com/user-attachments/assets/8ac6808d-0126-4a2e-8e73-62f95c5d5054" />
+‎‎‎‎‎‎             <img width="784" height="41" alt="TextStudio-Typewriter (2)" src="https://github.com/user-attachments/assets/f7b31180-aac4-4306-a03a-1ba97b858ea9" />
 
-<img width="2407" height="118" alt="232323232323" src="https://github.com/user-attachments/assets/98b9bc9e-85cf-4dd7-824b-69b9a43545f0" />
